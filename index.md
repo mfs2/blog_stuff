@@ -11,7 +11,7 @@ You will be asked to vote on the following article. Please read it carefully.
 ---
 Here’s why we urge you to vote “yes” on this article. 
 ---
-A vote for school choice is a vote for Windham kids. Kids learn best with experienced teachers in calm school environments. The Windham elementary school has not been able to provide either of these. Last summer’s last-ditch efforts to staff the school were a disaster. We have no guarantees of better outcomes this year. 
+### A vote for school choice is a vote for Windham kids.###  Kids learn best with experienced teachers in calm school environments. The Windham elementary school has not been able to provide either of these. Last summer’s last-ditch efforts to staff the school were a disaster. We have no guarantees of better outcomes this year. 
 
 A vote for school choice is a vote for Windham families. Today’s Windham families need a say in where their kids go to school. Many Windham families have stated that they would prefer to school their kids outside of Windham. They want:
 
