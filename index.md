@@ -1,5 +1,5 @@
 ---
-title: Dear Windham voter :
+title: Dear Windham voter 
 ---
 
 ---
